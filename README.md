@@ -3,7 +3,7 @@ PopPorn
 回家地址：
 官方Banlu社群：https://bl.im/+zB2X6kOlzrfu0_54
 
-最新APP下载地址：https://kuaishe.shop
+最新APP下载地址：https://kuaishe.app
 
 
 
